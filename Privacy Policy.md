@@ -1,1 +1,1 @@
-# Privacy Policy
+# Nexu Privacy Policy
